@@ -1,2 +1,2 @@
-# https-roblox.com-fling-things-and-people-
-Scprit  
+# https-roblox.com-fling-things-and-people
+fling everyone super duper high
